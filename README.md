@@ -1,1 +1,1 @@
-# Meridian-Retail-Co-Project
+# Meridian Retail Co Project
